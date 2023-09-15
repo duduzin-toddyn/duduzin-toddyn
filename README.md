@@ -1,6 +1,5 @@
 ### 😃💔 Boa tarde neymar 🇦🇴🎱
 
+![](https://media.tenor.com/LsYPAE9JiP8AAAAd/rolando-ronaldo.gif)
 
-
-![](https://media.tenor.com/TLhWkKdr770AAAAd/giga-chad.gif)
 
